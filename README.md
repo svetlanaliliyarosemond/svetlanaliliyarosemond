@@ -1,2 +1,2 @@
 - Pronouns: She/Her.
-- :rainbow: LGBTQ+.
+- :rainbow: LGBTQ+
